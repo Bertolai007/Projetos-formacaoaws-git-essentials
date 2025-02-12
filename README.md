@@ -1,0 +1,1 @@
+# Projetos-formacaoaws-git-essentials-.git-
